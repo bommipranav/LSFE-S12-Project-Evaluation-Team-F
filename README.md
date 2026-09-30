@@ -5,10 +5,11 @@ Q) Write a formal email to the HOD requesting permission to organise and host a 
 
 TEAM - F
 
-2620040136 - Pranav ( leader )
+Pranav Bommi, 2620040136( Leader )
 
-2620040115 - Harshith
+Jadda Harshit Chowdary, 2620040115
 
-2620030077 - Harsha
+Maroju Venkata Sai Ram Harsha, 2620030077
 
-2620030126 - Rishith
+Potnuru Rishith Kumar, 2620030126
+
