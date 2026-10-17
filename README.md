@@ -7,7 +7,7 @@ TEAM - F
 
 Pranav Bommi, 2620040136( Leader )
 
-Jadda Harshit Chowdary, 2620040115
+Jadda Harshith Chowdary, 2620040115
 
 Maroju Venkata Sai Ram Harsha, 2620030077
 
